@@ -1,2 +1,0 @@
-# shopee
-divulgaçao
